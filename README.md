@@ -1,1 +1,0 @@
-# checkArkkcy3g
